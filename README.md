@@ -135,7 +135,5 @@ Need help? Ask questions?
 
 ---
 
-## 🔎 SEO Keywords (for search visibility)
-
 `valorant hwid spoofer`, `riot vanguard bypass`, `undetected valorant spoofer`, `hwid ban fix valorant`, `permanent spoofer`, `valorant ban reset`, `spoof riot anti cheat`, `bypass vanguard hwid`, `valorant hwid ban 2025`
 
